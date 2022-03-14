@@ -1,1 +1,1 @@
-# Masters-in-Economic-Analysis
+# Master-in-Economic-Analysis
